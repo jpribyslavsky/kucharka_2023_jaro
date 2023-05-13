@@ -42,3 +42,31 @@ _Autor: Jan Přibyslavský_
 
 
 _Autor: Katka Staňková_
+
+## Dyňové rizoto
+
+### Suroviny
+* 1 menšia tekvica Hokkaido
+* 1l vývar (zeleninový alebo mäsový)
+* olivový olej
+* 300g ryže
+* tymián
+* biele víno
+* soľ
+* parmezán
+* maslo (nemusí byť)
+
+### Postup přípravy
+1. Tekvicu Hokkaido nakrájame na menšie kúsky, vyberieme semiačka a neošúpanú necháme variť do mäkka (cca 15-20min).
+2. Uvarenú tekvicu rozmixujeme na pyré a pridáme vývar. Dobre premiešame. Podľa potreby dosolíme.
+3. Na panvici si zohrejeme olej a zľahka na ňom opražíme neumytú ryžu, aby sa v nej uzavrel škrob.
+4. Ryžu podlejeme bielym vínom a pri miešaní necháme alkohol postupne vypariť.
+5. Okoreníme drteným tymiánom.
+6. Dyňové pyré zmiešané s vývarom pridávame po častiach, miešame, necháme zhustnúť.
+7. Opakujeme, pokým nie je celé pyré zmiešané s ryžou a ryža uvarená tzv. na skus (cca 25-30min).
+8. Na zjemnenie môžeme primiešať kúsok masla.
+9. Na tanieri posypeme parmezánom.
+
+Ideálne podávame s bielym vínom:) Dobrú chuť!
+
+_Autor: Martina Heczko_
