@@ -42,3 +42,27 @@ _Autor: Jan Přibyslavský_
 _Autor: Katka Staňková_
 
 ---
+
+## Banana bread netradičně
+
+### Suroviny
+* 3 zralé banány
+* 150 g rozpuštěného másla
+* 1 vejce
+* 2 lžíce medu
+* 200 g ovesné mouky ("cca 400 g pomletých ovesných vloček")
+* 1 lžička prášku do pečiva
+* 1 lžička sody
+* 1 lžička skořice
+* špetka soli
+
+### Postup přípravy
+1. Předehřejeme troubu. Formu nebo pekáček vymastíme máslem a vysypeme stouhankou nebo kokosem.
+2. Banány rozmačkáme vidličkou.
+2. Přidáme vejce, máslo, med a zamícháme.
+3. Přidáme všechny sypké suroviny a dobře promícháme, aby se vše spojilo. Těsto je hutnější.
+4. Vlijeme do formy a pečeme na cca 160°C, zkoušíme špejlí, dokud se nelepí.
+
+_Autor: Vlaďka Vraná_
+
+---
