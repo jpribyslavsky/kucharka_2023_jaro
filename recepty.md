@@ -22,7 +22,6 @@ Přeji dobrou chuť. Konzumaci nedoporučuji před důležitou schůzkou, pokud 
 _Autor: Jan Přibyslavský_
 
 ---
-# GIT kuchařka kurzu DA testování
 
 ## Brownies
 
@@ -40,5 +39,6 @@ _Autor: Jan Přibyslavský_
 3. Cukr prošleháme s vejci dohladka a opatrně vmícháme do rozpuštěné čokolády s máslem.
 4. Vlijeme do formy a pečeme 30-35 minut, až se na povrchu vytvoří tenká krustička.
 
-
 _Autor: Katka Staňková_
+
+---
