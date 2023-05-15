@@ -162,3 +162,35 @@ _Autor: Vlaďka Vraná_
 _Autor: Lenka Haarbrandt_
 
 ---
+
+## Nescafé moučník
+
+### Suroviny
+* 300g polohrubé mouky
+* 150g moučkového cukru
+* 100g vlažného rozpuštěného másla
+* 3 lžíce slunečnicového oleje
+* 2 vejce
+* 3 lžičky kakaa
+* 1lžíce Nescafé
+* 1/4l mléka
+* 1 lžíce rumu
+* 1 prášek do pečiva
+* 1 tabulka čokolády na vaření
+* 1 zakysaná smetana
+
+### Postup přípravy těsta
+1. Do mísy dáme mouku, prášek do pečiva, cukr, kakao, Nescafé a zamícháme.
+2. Přidáme vejce, tuk, olej, rum a mléko - uděláme hladké těsto.
+3. Vylijeme na vymyzaný a vysypaný středně velký plech.
+4. Pečeme na 180°C asi 15-20 minut.
+5. Po vychladnutí pomažeme polevu.
+
+### Postup přípravy polevy
+1. 1 tabulku čokolády na vaření rozpustíme na vodní lázni.
+2. Necháme chvíli zchládnout a vmícháme 1 celou zakysanou smetanu.
+3. Rozetřeme na upečenou buchtu.
+
+_Autor: Karolína Malárová_
+
+---
