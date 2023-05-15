@@ -124,3 +124,41 @@ _Autor: Vlaďka Vraná_
 
 ---
 
+## Opravdové špagety Bolognese
+
+### Suroviny Soffritto
+* 125 g másla
+* 2 větší cibule
+* 3 mrkve
+* 3 stonky řapíkatého celeru
+* troška oleje
+
+### Suroviny Sugo
+* 1 kg mletého hovězího
+* bílé víno
+* mléko
+* 600 g rajčat Passata
+* 3 stroužky česneku
+* peperoni
+* sůl, pepř
+
+### Postup přípravy
+1. Nejprve připravte Soffritto. Do pánve dejte máslo a trochu olivového oleje. Nechte rozpustit máslo na nízkém plameni, abyste zabránili spálení.
+
+2. Nakrájejte cibuli, mrkev a celer na velmi jemné kousky. Přidejte je do pánve a nechte je na mírném plameni dusit po dobu nejméně 30 minut, dokud se zelenina nezměkčí a nezezlátne. Důležité je, aby se zelenina dusila a nesmažila!
+
+3. Mezitím v jiné pánvi osmahněte hovězí mleté maso, dokud nedosáhne hnědé barvy. Poté zalijte maso bílým vínem a nechte odpařit.
+
+4. Přidejte mléko v závislosti na množství omáčky. Mléko se obalí kolem masa a dodá mu jemnou chuť.
+
+5. Jakmile maso s vínem a mlékem začne vřít, přidejte konzervovaná rajčata.
+
+6. Jakmile vše opět zavře, přidejte Soffritto (dušenou zeleninu), česnek a rozmačkanou peperoni. Dochuťte solí a čerstvě mletým černým pepřem.
+
+7. Boloňská omáčka by měla vařit co nejdéle. Ideální doba je asi 5 hodin, ale minimálně 2 hodiny. Pokud je potřeba, přidávejte občas trochu vody nebo vývar.
+
+
+
+_Autor: Lenka Haarbrandt_
+
+---
