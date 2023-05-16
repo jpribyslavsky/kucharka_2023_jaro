@@ -194,3 +194,32 @@ _Autor: Lenka Haarbrandt_
 _Autor: Karolína Malárová_
 
 ---
+
+## Krkovička z trouby
+
+### Suroviny
+* 4-5 plátků krkovičky
+* sůl
+* 6-7 stroužků česneku
+* 2 cibule
+### Marináda
+* 2 lžíce oleje
+* 2 lžíce sojové omáčky
+* 6 lžic ostrého kečupu
+* 1 lžička medu
+* 1 lžička mleté papriky
+* půl lžičky mletého pepře
+* 50 ml vody
+
+### Postup přípravy 
+1. Maso naklepat a z obou stran posolit. Potřít česnekem, naskládat do pekáče.
+2. Zasypat jemně pokrájenou cibulí.
+3. Suroviny na marinádu dobře promíchat a rovnoměrně nalít na maso.
+4. Přikrýt, vložit do vyhřáté trouby a pečeme doměkka (190°C asi 60 minut)
+5. Příloha šťouchané brambory.
+
+Dobrou chuť!
+
+_Autor: Verča Strnadová_
+
+---
