@@ -194,3 +194,31 @@ _Autor: Lenka Haarbrandt_
 _Autor: Karolína Malárová_
 
 ---
+
+## Domácí chleba
+
+### Suroviny
+* 1 hrnek polohrubé mouky
+* 1 hrnek hladké mouky
+* 2 hrnky žitné mouky (může být i celozrnná)
+* 2 kávové lžičky soli
+* 1/2 polévkové lžíce sušeného droždí/kvásku (bez octa)
+* 1 polévková lžíce kminu
+* Semínka podle chuti (slunečnice, len, dýně, Cchia)
+* 1 polévková lžíce octa
+* 2 hrnky vody
+
+### Postup přípravy
+1. Všechny suché suroviny promíchat společně.
+2. Přidejte zbylé suroviny.
+2. Promícháme, aby se vše spojilo v těsto.
+2. Přikryjeme utěrkou a necháme 8-12 hodin kynout.
+2. Před pečením si rozpílíme v troubě pečící formu na chleba, cca na 30 minut na 250°C.
+2. Poté do rozehřáté formy vyklopíme těsto a uhladíme povrch mokrou vařečkou.
+3. Chleba pečeme pod pokličkou/víkem formy 1/2 hodiny na 230°C.
+4. Sundáme poklici/víko, stáhneme teplotu na 200°C a pečerme dašlí 1/2 hodinu.
+5. Po upečení chleba vyklopíme z formy, aby se nezapařil, a v utěrce necháme alespoň 2 hodiny vychladnout.
+
+_Autor: Hana Barochová_
+
+---
