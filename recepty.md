@@ -251,3 +251,41 @@ _Autor: Verča Strnadová_
 _Autor: Hana Barochová_
 
 ---
+
+
+## Norská rybí polévka
+
+### Suroviny
+* 1 cibule
+* 1 pórek
+* 1 paprika
+* 1 mrkev
+* 2 brambory
+* 2 stroužky česneku
+* 100 g žampionů
+* 400 g tuňáka
+* 1 žloutek
+* 2 l vody
+* 100 ml smetany
+* 20 g másla
+* 2 polévkové lžíce olivového oleje
+* chilli, pepř, tymián, sůl
+* čerstvá petželka
+
+
+### Postup přípravy
+1. Na olivovém oleji s máslem osmahneme nadrobno pokrájenou cibuli.
+2. Přidáme nadrobno nakrájený pórek a papriku, nastrouhanou mrkev, špetku chilli a dusíme 7 min.
+3. Přidáme nadrobno pokrájené brambory a vodu. Přivedeme k varu a vaříme 15 min.
+4. Na olivovém oleji osmahneme žampiony,cca 3 min. Přidáme česnek nasekaný nadrobno a smažíme další cca 2 min. Vše přidáme do polévky.
+5. Smažíme tuňáka (2 min z každé strany). Přidáme do polévky.
+6. Přidáme pepř, tymián, sůl dle chuti a vaříme dalších 15 min.
+7. Žloutek promíháme se smetanou a trochou polévky.
+8. Vypneme sporák, přidáme žloutek se smetanou a necháme 15 min pod pokličkou.
+9. Nakonec přidáme nasekanou petrželku.
+
+Velmi chutný způsob, jak zařadit do jídelníčku ryby :)
+
+_Autor: Veronika Růžičková_
+
+---
